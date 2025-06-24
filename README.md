@@ -6,6 +6,5 @@
 - 🧑‍🤝‍🧑 My general skills include time management, organization, problem Solving, creativity, teamwork, and writing.
 - 😄 Pronouns: she/her
 - 📫 How to reach me:
-  - Email: monica_markov@hotmail.com
   - LinkedIn: linkedin.com/in/monica-markov-597369331
   - Instagram: monica_markov
